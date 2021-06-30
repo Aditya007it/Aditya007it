@@ -1,5 +1,5 @@
 - 👋 Hi, I’m Aditya Kumar.
-- 👀 I’m interested as a work as an intern for a company.
+- 👀 I’m interested in as an intern for a company.
 - 🌱 I’m currently persueing Bachelor of Technology in Delhi Technological University.
 - 📫 Email - adityakumar8860184037@gmail.com , Phone No. = 8700949531
 
